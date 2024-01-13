@@ -1,1 +1,3 @@
-ÿş
+dziÄ™kujÄ™
+za
+uwagÄ™
